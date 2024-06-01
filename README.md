@@ -1,4 +1,4 @@
-- ✌🏻 Hi, Pratik here
+- ✌🏻 Hi, there
 - 👀 Coding Life 0️⃣1️⃣.
 - 🧑🏻‍💻 AI and  ML Engineer
 
